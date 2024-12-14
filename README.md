@@ -1,3 +1,5 @@
+ [**Play Sprunki Phase 777 Online**](https://www.y9freegames.com/game/sprunki-phase-777/)
+ 
 # Sprunki Phase 777 Mod - Play Enhanced Browser Games for Free
 
 Sprunki Phase 777 Mod takes players into a world where strategy and survival are key. As the protagonist, you must navigate a landscape filled with challenges and surprises. This mod enhances the original game by adding new features and gameplay improvements that elevate your experience.
@@ -26,8 +28,8 @@ Sprunki Phase 777 Mod is perfect for players who enjoy challenging, story-rich g
 ---
 
 **Links:**
-- [Official Game Website](https://example.com)
-- [Download Mod](https://example.com/download)
+- [**Official Game Website**I](https://www.y9freegames.com/)
+- [**Play the Mod Online**I](https://www.y9freegames.com/game/sprunki-phase-777/)
 
 ---
 
